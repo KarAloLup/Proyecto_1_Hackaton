@@ -1,1 +1,0 @@
-# hakatonEq5
